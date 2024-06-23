@@ -1,3 +1,0 @@
-- atakancolak@outlook.com
-- [Github](https://github.com/AtakanColak)
-- [YouTube](https://www.youtube.com/channel/UC7Z1cIYbw0hr-CfJ6_TlkfQ)
